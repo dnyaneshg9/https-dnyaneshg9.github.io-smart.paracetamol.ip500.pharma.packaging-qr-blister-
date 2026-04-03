@@ -1,1 +1,1 @@
-https://github.com/dnyaneshg9/UnitraQ
+smart-blister-pack-paracetamol
